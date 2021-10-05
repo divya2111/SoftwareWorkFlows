@@ -1,3 +1,3 @@
-I am the new person in softwarewok flow project.
-I am interested join this project 
-I think that will help me better
+I am the new person in Fashion designing.
+I am interested join this project. 
+I want to give ideas to develop the app by giving some suggestion regrading features of the app.
